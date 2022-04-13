@@ -2,4 +2,4 @@
 
 ## 7Mū - 7Sins & MabarUnited
 
-**[7Mū | 7MuS | 7Mys]** merupakan singkatan dari _7Sins and Mabar United_.
+**[7Mū | 7MuS | 7Mys]** is an abbreviate for 7Sins and Mabar United And 7 Mysteries.
